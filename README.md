@@ -1,0 +1,1 @@
+# ahmetozyoruk.github.io
